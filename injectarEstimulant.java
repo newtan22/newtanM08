@@ -1,0 +1,1 @@
+codi per injectar estimulant
